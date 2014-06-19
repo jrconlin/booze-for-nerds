@@ -59,6 +59,14 @@ Contributed by some Mozillian???
 The r-
 ------
 
+  3 parts tequilla (plata)
+  2 parts orange liquor
+  1 part squid ink
+  ice
+
+Nearly gets it right, but there's a pretty significant problem that needs to be addressed. 
+Also acceptable to swap squid ink with syrup of ipecac, but that might be a tad more literal than folks would prefer.
+
 Contributed by some Mozillian???
 
 Fizz Buzz
